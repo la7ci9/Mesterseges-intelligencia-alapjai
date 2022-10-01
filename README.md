@@ -1,0 +1,1 @@
+# Mesterseges-intelligencia-alapjai
